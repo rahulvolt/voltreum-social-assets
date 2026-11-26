@@ -1,0 +1,1 @@
+# voltreum-social-assets
